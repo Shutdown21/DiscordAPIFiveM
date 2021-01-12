@@ -1,2 +1,2 @@
 # DiscordAPIFiveM
-⭐ Hello, i'm Shutdown ! 🌹 I will help nobody. 🌺I leak my scripts, it's up to you to modify them / add things. 🌷 Bye !
+⭐ Je précise que ce Script à été créer par MasterLua ! Je le releak juste au cas ou en tout cas, gros GG à lui !
